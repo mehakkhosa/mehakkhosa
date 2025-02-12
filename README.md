@@ -36,6 +36,6 @@
 ## 📫 Let’s Connect!
 🔗 [**LinkedIn**](https://www.linkedin.com/in/mehak-khosa)  
 💌 [**Email**](mailto:mehakkhosa22@gmail.com)  
-🌎 [**Portfolio Website (Coming Soon)**]
+🌎 [**Portfolio Website**](https://mehakkhosa.github.io/)
 
 💡 Always open to **collaborations, internships, and AI discussions**! Feel free to reach out! 🚀  
